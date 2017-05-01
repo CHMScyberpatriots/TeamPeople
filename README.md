@@ -1,2 +1,2 @@
 # TeamPeople
-People
+Please, don't screw anything up!
